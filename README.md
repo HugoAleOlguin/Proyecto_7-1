@@ -2,10 +2,6 @@
 
 ---
 ![jeje](https://i.ibb.co/VWyX442D/jeje.gif)
-![agu](https://i.ibb.co/ZpJ97R45/agu.gif)
-
-
-
 
 Hola mundo
 
